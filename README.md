@@ -1,6 +1,6 @@
 # Bharat Panja
 Manager, Platform Engineering — OCI · Cloud . Linux . Security · AI
-Santa Ana, CA · [LinkedIn](https://www.linkedin.com/in/bharat-panja/)
+[LinkedIn](https://www.linkedin.com/in/bharat-panja/)
 
 ---
 
